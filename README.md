@@ -14,8 +14,6 @@
 - 🚀 My Personel Website : Coming soon 👩🏻‍💻.
 
 - ⚡ Fun Fact : Code,Music🎵 and books are the reasons to live.
-
-- [![](https://visitcount.itsvg.in/api?id=yucesefa&icon=0&color=12)](https://visitcount.itsvg.in)
  
 <br>
 
